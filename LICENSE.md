@@ -1,4 +1,4 @@
-#  
+#  smart Script for oil empire is the best oil empire Script, featuring teleport and private server access. Safe and powerful for all your needs.
 
 
 
